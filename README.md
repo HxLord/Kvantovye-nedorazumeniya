@@ -1,1 +1,0 @@
-# Kvantovye-nedorazumeniya
